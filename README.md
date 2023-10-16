@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vVisics
+- 👀 I’m interested in learning different coding languages 
+- 🌱 I’m currently learning javascript and python
+- 💞️ I’m looking to collaborate on nothing right now just learning still 
+- 📫 How to reach me not to be disclosed yet 
